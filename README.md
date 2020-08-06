@@ -1,1 +1,0 @@
-# magomedm.github.io
